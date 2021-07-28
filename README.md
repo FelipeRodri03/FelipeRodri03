@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FelipeRodri03
+- 👀 I’m interested in the systems engineering
+- 🌱 I’m currently studying that in EAN University
